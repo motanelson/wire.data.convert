@@ -1,1 +1,1 @@
-game server
+server of yours text and documents

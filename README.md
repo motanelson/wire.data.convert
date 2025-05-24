@@ -1,1 +1,1 @@
-server of yours text and documents
+server on any part of the world
